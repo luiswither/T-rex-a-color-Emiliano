@@ -1,1 +1,1 @@
-# T-rex-a-color-Emiliano
+# JUEGOS-COMPATIBLES-CON-DISPOSITIVOS-AM2
